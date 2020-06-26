@@ -1,5 +1,7 @@
 What is life?
 
-Baby don't hurt me
-don't hurt me
+Oh, baby don't hurt me
+Don't hurt me
 No more
+
+Ououoaaa
